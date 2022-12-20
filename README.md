@@ -1,1 +1,1 @@
-# jazz-combustion-pdf
+# self-immolation-pdf
